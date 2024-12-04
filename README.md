@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hello everyone. I'm sizen. I'm just a girl 🎀....FLOATING ON A ROCK THAT IS FLOATING AROUND ANOTHER FIERY ROCK THAT IS FLOATING AROUND NOTHINGNESS. I like astronomy, reading novels and writing poetry.My career goal is to be rich.
 
 <!--
 **Sera-docx/Sera-docx** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
